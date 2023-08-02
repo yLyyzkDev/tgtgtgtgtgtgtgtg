@@ -9,3 +9,8 @@ tgtgtgtgtgtgtgtgtgtgtgtgtg
 ![Termos](https://github.com/yLyyzkDev/tgtgtgtgtgtgtgtg/assets/99051555/ba276e18-2246-4810-81da-10f1dcfd416a)
 ![CENTRAL TICKETS](https://github.com/yLyyzkDev/tgtgtgtgtgtgtgtg/assets/99051555/57f9e0c9-00dc-4188-ad39-86b1adaf6d97)
 ![1135613477965279263](https://github.com/yLyyzkDev/tgtgtgtgtgtgtgtg/assets/99051555/fe8d4897-96b5-4e45-b6b8-7fd4a55b8623)
+![hq720](https://github.com/yLyyzkDev/t![1136237324666155139](https://github.com/yLyyzkDev/tgtgtgtgtgtgtgtg/assets/99051555/3fb50ccd-4838-4c26-a0cb-eb15d67e0903)
+gtgtgtgtgtgtgtg/assets/99051555/0e33d005-9d51-4abb-be65-6db51d25cc73)
+![1136237410754232341](https://github.com/yLyyzkDev/tgtgtgtgtgtgtgtg/assets/99051555/5f8bcbf8-1ad1-4132-9978-8c24acbb9128)
+![Uploading 1136237324666155139.png…]()
+![1136237307901530242](https://github.com/yLyyzkDev/tgtgtgtgtgtgtgtg/assets/99051555/de089355-8d49-49f8-ae60-49ef35fccda5)
